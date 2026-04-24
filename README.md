@@ -1,1 +1,1 @@
-Novas Tualizações
+Novas Atualizações
